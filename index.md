@@ -9,4 +9,5 @@
 3. 参与方式：[Zoom会议链接](https://us02web.zoom.us/j/88087328118?pwd=RHptbHY0cHZrQ0pGK3J3RUhhUmszQT09)（会议号：880 8732 8118，密码：0319）
 
 期待和大家线上相聚！
-	![alt text](/assets/Flyer.JPG)
+	
+![alt text](/assets/images/Flyer1.JPG “本周福利”)
