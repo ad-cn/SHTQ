@@ -10,4 +10,4 @@
 
 期待和大家线上相聚！
 	
-![alt text](/assets/images/Flyer1.JPG “本周福利”)
+![本周福利](/assets/posters/Flyer.JPG “本周福利”)
