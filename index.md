@@ -8,7 +8,7 @@
 
 - Zoom会议号：972 1630 8571 ， 密码：godislove
 
-- Dao告信链接：[https://bit.ly/3J6JsQm](https://bit.ly/3J6JsQm) (需要ladder，请务必复制到浏览器中打开，如果不方便在线查看，请与我联络，会将文件发给您)
+- Dao告信链接：[https://bit.ly/3J6JsQm](https://bit.ly/3J6JsQm) (需要ladder，请务必复在微信外、浏览器中打开，如果不方便在线查看，请与我联络，会将文件发给您)
 
-如果Dao告信有需要修改的地方，请与我或者其他Tong工联络，盼望和大家一同Dao告
+如果Dao告信有需要修改的地方，请与我或者其他Tong工联络，盼望和大家一同Dao告🙏
 
