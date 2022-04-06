@@ -1,3 +1,3 @@
-## 4月线上活动通知
+## 4月居家福利
 
-敬请期待
+![alt text](/assets/posters/poster.JPG)
