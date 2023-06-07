@@ -3,7 +3,7 @@
 - 地址见下图，请乘电梯到**23层**。23层共3户，玻璃门（**门口挂有一副中国古代人物画**）那一家即是本次活动场地。
 
 
-![地址](assets/posters/poster.JPG)
+![地址](assets/posters/poster-june.JPG)
 
 
 
